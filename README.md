@@ -1,4 +1,4 @@
-- 👋 @JorgeCastillo97 **Quality Assurance Engineer / Software Developer**
+- 👋 @JorgeCastillo97 **Software Development Engineer**
 - 🌱 I’m currently learning... whatever looks interesting and could become a trend in the industry
 - 💞️ I’m looking to collaborate on... challenging projects with people around the world
 - 📫 How to reach me ... jorcasjim29@gmail.com / www.linkedin.com/in/jceek
